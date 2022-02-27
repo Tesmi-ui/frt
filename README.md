@@ -1,1 +1,1 @@
-# frt thanks for comming here
+# frt: thanks and welcome
